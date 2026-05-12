@@ -1,1 +1,0 @@
-# shoyah-design
